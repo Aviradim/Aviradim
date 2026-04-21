@@ -1,5 +1,5 @@
 # 💫 About Me:
-FiveM Server Owner & Developer<br>Avid Motorsport & Nature Photographer<br>Always Learning new skills
+FiveM Developer<br>Avid Motorsport & Nature Photographer<br>Always Learning new skills
 
 
 ## 🌐 Socials:
